@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... video editing and software development
 - 🌱 I’m currently learning ... video editing
 - 💞️ I’m looking to collaborate on ... any project
-- 📫 How to reach me ...israeelibeun47@gmail.com
+- 📫 How to reach me ...israelibeun47@gmail.com
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ... i love learning
 
